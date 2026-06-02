@@ -6,7 +6,7 @@ Voor 6 personen
 
 - voor de bechamel
   - 50 g boter
-  - 62 g bloem
+  - 60 g bloem
   - 600 ml melk
   - nootmuskaat
   - paprikapoeder
